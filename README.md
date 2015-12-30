@@ -1,6 +1,5 @@
 # nk313
 ============================
 
-Iam Kpopers!
-SO? Don't judge my bias!
-wkwkwk
+Iam Generus Pasukan 313!
+Intansurullah!
